@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Charles8971,a bored&boring graduate from ZhenHai High School,Zhejiang,China
+- 👋 Hi, I’m @Char8971,a bored&boring graduate from ZhenHai High School,Zhejiang,China
 - 🌱 I’m currently learning English&python
 - 📫 How to reach me ... well,i don't know.
 
